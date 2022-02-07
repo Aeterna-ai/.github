@@ -1,5 +1,5 @@
 ## Aeterna.ai 🧬
-### Bringing the future of VR/AR/XR
+### Extending Reality (XR)
 
 ### 🛠
 
